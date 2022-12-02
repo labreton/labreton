@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @labreton
-- Lucas Breton, Product Designer @ Nuovo Artistic Studios
+- Lucas Breton, Product Design Lead @ Nuovo Artistic Studios
